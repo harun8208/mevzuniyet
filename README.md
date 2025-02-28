@@ -1,1 +1,2 @@
 # mevzuniyet
+iklim değşiklğinin
